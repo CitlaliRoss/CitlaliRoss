@@ -10,7 +10,7 @@ Estudio mi 4to Semestre en Preparatoria en la Capacitación de TICS 🖥
 -  🎶 Me gusta todo tipo de Musica principalmente el Kpop y el IndieRock
 -  💎Army y Shawol
 - 🎮 Juego Videojuegos cada que puedo
-- 🖥 Me apasiona el mundo de las computadoras
+- 🖥 Me Gustan las Computadoras
 - 🐋Puedo ayudarte en lo que gustes
 - ✨Entre mas RGB mas FPS
 - 🟪Jugadora Competitiva de Tetris
